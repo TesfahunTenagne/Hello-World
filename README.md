@@ -1,2 +1,2 @@
 # Hello-World
-Hello world; this is my first entrance to join a great world.
+Hello I'm Tesfahun Tenagne from Africa Ethiopia.  
